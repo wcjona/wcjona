@@ -20,4 +20,5 @@
 I'm always looking to meet new people!  
 
 Feel free to reach out to me via [Email](mailto:jonathanchongyyc@gmail.com) or [LinkedIn](https://www.linkedin.com/in/jonathanchongyyc) to chat ❤️
+
 Or check out my [Website](https://jonathanchong.ca)
