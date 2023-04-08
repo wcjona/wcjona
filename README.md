@@ -3,7 +3,7 @@
 #### **Currently I am..**
 💯 A Software & Biomedical Engineering student at the University of Calgary
 
-🚀 Looking for Summer 2023 Internships
+🚀 Incoming Software Engineer Intern @ [AMD](https://www.amd.com/en.html)
 
 🌄 Exploring Aritificial Intelligence API's and Projects
 ##
